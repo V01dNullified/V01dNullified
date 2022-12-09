@@ -1,0 +1,2 @@
+- nitrotype hacks, blooket hacks, **ngon hacks**, google snake hacks, & more.
+- 
